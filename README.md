@@ -1,0 +1,2 @@
+# 07c27630-66e1-4dcd-9083-476c561895bb-hero-2
+Hero section variant 2 for 07c27630-66e1-4dcd-9083-476c561895bb
